@@ -1,0 +1,1 @@
+# Short-Term-Dependency-of-A-Class-of-Nonlinear-Dynamic-Systems---Modeling-Dynamic-Systems-wi
